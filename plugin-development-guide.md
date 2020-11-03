@@ -1,4 +1,4 @@
-[Original Post](https://web.archive.org/web/20190419085323/https://forum.sa-mp.com/showthread.php?t=295798)
+[Original Post By Kyosaur](https://web.archive.org/web/20190419085323/https://forum.sa-mp.com/showthread.php?t=295798)
 
 # Navigation
 
